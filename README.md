@@ -1,5 +1,5 @@
 ## Hi there you come 👋
-# bless you 
+# GOD bless you 
 
 <!--
 **Cristine-pinem/Cristine-pinem** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
